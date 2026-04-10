@@ -4,4 +4,4 @@
 
 Legajo: 222.750-2
 
-Me llamo Alejo, tengo 22 años y este es mi tercer año cursando la materia.
+Me llamo Alejo, tengo 22 años y este es mi tercer año cursando la carrera.
